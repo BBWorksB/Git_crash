@@ -9,3 +9,7 @@ You can fine my link here:
 - Tomorrow will be better
 
 - Yesterday is past tense
+
+
+# Let's be Lazy
+## Just for today
